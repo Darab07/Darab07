@@ -38,4 +38,4 @@ Passionate about **breaking things** (figuratively, of course) and ensuring digi
 ## 📞 Let's Connect!
 
 - 📧 Email: [mdarabkhan02@gmail.com](mailto:mdarabkhan02@gmail.com)
-- 💼 LinkedIn: [Mohammad Darab Khan]([https://www.linkedin.com/in/yourprofile])
+- 💼 LinkedIn: [Mohammad Darab Khan](https://www.linkedin.com/in/mohammad-darab-khan-66097024b/)

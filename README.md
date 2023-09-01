@@ -35,6 +35,13 @@ Passionate about **breaking things** (figuratively, of course) and ensuring digi
 - 💬 Captured the voice of customers like a survey whisperer, turning complaints into applause with a 14% satisfaction boost and 25% complaint drop.
 - 🏆 Awarded a gold medal in customer satisfaction, proving that happy customers are my forte.
 
+## 🏆 Certifications:
+-🔒 [Play It Safe: Manage Security Risks - Google](https://www.coursera.org/account/accomplishments/certificate/FNWTVKDEBUBD)
+Grade Achieved: 98.81%
+
+-🌐 [Foundations of Cybersecurity - Google](https://www.coursera.org/account/accomplishments/certificate/ZJC6DYC3W7GR)
+Grade Achieved: 91.75%
+
 ## 📞 Let's Connect!
 
 - 📧 Email: [mdarabkhan02@gmail.com](mailto:mdarabkhan02@gmail.com)
